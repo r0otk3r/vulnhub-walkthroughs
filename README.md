@@ -34,7 +34,6 @@ If you enjoy the no-nonsense approach:
 *   **Star this repository** ⭐
 *   **Subscribe to my channel** 🔔
 
-Your support motivates me to speed-run more machines!
 
 ---
 
